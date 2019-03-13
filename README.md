@@ -1,0 +1,1 @@
+# ajou-sss-lab2
